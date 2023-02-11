@@ -14,5 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - :office: Nastavnica u skoli
-- ![Facebook_icon111](https://user-images.githubusercontent.com/125125256/218260508-bf40f26a-5744-402f-b1ba-3ea8f6f52bcd.png)
-
+- ![Facebook_icon111](https://user-images.githubusercontent.com/125125256/218260693-f368c1bb-9b3a-4aef-82ec-e1e9d0d6a7f9.png)
